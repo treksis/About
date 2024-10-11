@@ -1,2 +1,2 @@
 # About
-Just code
+Just code. Product guy. 
