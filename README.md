@@ -1,2 +1,2 @@
 # About
-Product guy. Use LLM to write 99% of code.
+Strong Opinion. I'm not afraid to go against the grain.
